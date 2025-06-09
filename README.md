@@ -6,7 +6,7 @@ ena / esl pronouns, she / her pref . i usually sit at the bllk fandom , my engli
 int , if you wanna be friends , one punch man fandom , idm ships !!
 
 
-dni , im a minor so 17+ dni , pr0shippers and roleplayers .
+dni , im a minor so 17+ dni , pr0shippers , roleplayers and hazbin hotel , helluva boss , nu carnival , waterside night and fandoms like that DNI.
 
 
 i usually dont interract first , so you can interract freely !! 
