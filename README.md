@@ -24,7 +24,7 @@ i also would like to chat , if i dont type i probably would be shy (id like to t
 i like drawing , playing games , listening to music and more like that !!
 
 
-👑 - i want to be friends , i probably would be too shy to int
+👑 - i want to be friends , i probably would be too shy to int + i LOVE your skin
 
 
 fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , funky friday , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume !
