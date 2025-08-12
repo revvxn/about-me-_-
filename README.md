@@ -3,7 +3,7 @@
 ![1000038502](https://github.com/user-attachments/assets/c1f1af1e-1c4e-42fa-826b-65e23d00a849)
 
 
-( 𝙘𝙧: 𝙞𝙣𝙠𝙡𝙚𝙭𝙠 𝙤𝙣 𝙭 / 𝙩𝙩 !! )
+( 𝙘𝙧: p𝙞𝙣𝙠𝙡𝙚𝙭𝙠 𝙤𝙣 𝙭 / 𝙩𝙩 !! )
 
 revv / esl pronouns, she / her pref . i usually sit at the bllk fandom , my english is not that good so i may not understand sometimes . tr / eng multishipper !!!
 
