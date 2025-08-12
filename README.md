@@ -1,15 +1,11 @@
   ✧ 𝙖𝙗𝙤𝙪𝙩-𝙢𝙚
 
+![1000038502](https://github.com/user-attachments/assets/c1f1af1e-1c4e-42fa-826b-65e23d00a849)
+
+
+( 𝙘𝙧: 𝙞𝙣𝙠𝙡𝙚𝙭𝙠 𝙤𝙣 𝙭 / 𝙩𝙩 !! )
+
 revv / esl pronouns, she / her pref . i usually sit at the bllk fandom , my english is not that good so i may not understand sometimes . tr / eng multishipper !!!
-
-
-
-
-
-![1000038052](https://github.com/user-attachments/assets/373efd55-93b8-4071-b278-4efd0a31366b)
-
-
-
 
 
 ✧ dni , im a minor so 17+ ( im under 16 ), pr0shippers ( guest x bluudud , c00l7n7 and more ) , roleplayers and hazbin hotel , helluva boss , nu carnival , waterside night and fandoms like that .
@@ -25,6 +21,9 @@ i like drawing , playing games , listening to music and more like that !!
 
 
 👑 - i want to be friends , i probably would be too shy to int + i LOVE your skin
+
+
+<img width="614" height="730" alt="1000038504" src="https://github.com/user-attachments/assets/644b9f4f-3a22-40bd-834f-bd08d32f0f7a" />
 
 
 fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , funky friday , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
