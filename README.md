@@ -23,7 +23,7 @@ i like drawing , playing games , listening to music and more like that !!
 👑 - i want to be friends , i probably would be too shy to int + i LOVE your skin
 
 
-<img width="614" height="730" alt="1000038504" src="https://github.com/user-attachments/assets/644b9f4f-3a22-40bd-834f-bd08d32f0f7a" />
+<img width="597" height="719" alt="1000038505" src="https://github.com/user-attachments/assets/f1ea903b-6bba-49f5-a6f1-69884126bfc0" />
 
 
 fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , funky friday , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
