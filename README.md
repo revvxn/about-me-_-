@@ -29,4 +29,10 @@ i like drawing , playing games , listening to music and more like that !!
 fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , funky friday , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
 
 
+ships i like ! / !! please int if u like any of these ships sob
 
+eternalberry , purelily , eternalsugar , goldenlily ( crk ) .
+tabiori , hiorin , kunigiri ( blue lock ) .
+funnyberry , fossilcleaning , cleanscreen , beautysleep ( dandys world )
+doublefedora , johnjane , 1xdoe , buildermon , buildershed , brightsky , azuretime , twochance , pizzapunch , chance1337 ( forsaken ) .
+jangar , lawple , melolumi ( brawl stars ) .
