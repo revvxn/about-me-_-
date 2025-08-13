@@ -33,7 +33,7 @@ fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , b
 
 ships i like ! / !! PLEASE int if u like any of these ships sob
 
-eternalberry , purelily , eternalsugar , goldenlily ( crk ) .
+eternalberry , purelily , eternalshadow , goldenlily ( crk ) .
 tabiori , hiorin , kunigiri ( blue lock ) .
 funnyberry , fossilcleaning , cleanscreen , beautysleep ( dandys world )
 doublefedora , johnjane , 1xdoe , buildermon , buildershed , brightsky , azuretime , twochance , pizzapunch , chance1337 ( forsaken ) .
