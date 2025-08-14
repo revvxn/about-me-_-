@@ -1,5 +1,7 @@
 revv / esl pronouns, she / her pref . i usually sit at the bllk fandom , my english is not that good so i may not understand sometimes . tr / eng multishipper !!!
 
+![1000038502](https://github.com/user-attachments/assets/538146f2-4929-48be-bef2-c0fc70eda007)
+
 
 ✧ dni , im a minor so 17+ ( im under 16 ), pr0shippers ( guest x bluudud , c00l7n7 and more ) , roleplayers and hazbin hotel , helluva boss , nu carnival , waterside night and fandoms like that .
 
